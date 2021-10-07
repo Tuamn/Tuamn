@@ -1,2 +1,2 @@
-👋 Hi, I’m @[Tuanmw](https://github.com/Tuanm)
+👋 Hi, I’m [TUAN](https://github.com/Tuanm)
 
